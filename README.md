@@ -1,2 +1,2 @@
 # My-Resume
-My resume
+Please hire me!
